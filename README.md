@@ -1,0 +1,1 @@
+# 8-sinif-inkilap-tarihi-ve-ataturkculuk-soru-bankasi-32
